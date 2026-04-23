@@ -1,2 +1,2 @@
 # Requirements-specificatie-Noirre
-Welkom bij team Noirre! 
+Welkom bij team Noirra! 
