@@ -1,0 +1,2 @@
+1. Missie
+Noirra maakt pure chocolade van hoge kwaliteit, met cacao van de beste herkomst. Wij willen dat mensen echt kunnen genieten van een rijke en intense chocoladesmaak. Duurzaamheid en eerlijke productie staan daarbij centraal niet als bijzaak, maar als onderdeel van wie wij zijn.

@@ -1,0 +1,2 @@
+2. Visie
+Noirra wil dé erkende naam zijn voor premium pure chocolade in de Benelux. Een merk dat fijnproevers automatisch associëren met vakmanschap, eerlijke herkomst en ongeëvenaarde smaak. Wij bouwen niet aan een massaproduct, maar aan een chocolade-ervaring die consumenten bewust kiezen en trots aanbevelen. Groei volgen wij gecontroleerd: kwaliteit boven volume, beleving boven bereik.
